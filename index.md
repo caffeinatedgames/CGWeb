@@ -1,3 +1,3 @@
 # Welcome to Caffeinated GAMES
 Important links:
-[Link](http://twitter.com/codemonkeyalx)
+[Alex's Twitter](http://twitter.com/codemonkeyalx)
